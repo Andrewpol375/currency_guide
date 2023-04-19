@@ -1,1 +1,1 @@
-# currency_guide
+# Technical Support: Andrewpol375@outlook.com
